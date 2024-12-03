@@ -1,5 +1,6 @@
 ## **Chapitre 3 : L'Alliance Inattendue**
 _**La Voix du Néant**_
+
 Le silence sur le Siren était presque tangible, interrompu uniquement par le bourdonnement sourd des systèmes du vaisseau. La structure colossale au loin semblait vivante, ses surfaces changeant imperceptiblement comme un organisme qui respirait. Puis, la voix. Grave, résonante, et omniprésente :
 --- 
 "Bienvenue dans le Vide."
