@@ -29,7 +29,7 @@ Kael fronça les sourcils.
 
 ---
 
-## _**Section 2 : La Révélation des Fragments**_
+ _** La Révélation des Fragments**_
 
 🌟 Une lumière soudaine jaillit de la structure, remplissant la salle de contrôle d’un éclat éblouissant. 🌟  
 
