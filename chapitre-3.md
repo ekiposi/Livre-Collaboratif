@@ -9,7 +9,6 @@
 
 Puis, **la voix**. Grave, résonante, et omniprésente :
 
----
 
 ### **"Bienvenue dans le Vide."**
 
@@ -29,7 +28,6 @@ Kael fronça les sourcils.
 
 ---
 
- _** La Révélation des Fragments**_
 
 🌟 Une lumière soudaine jaillit de la structure, remplissant la salle de contrôle d’un éclat éblouissant. 🌟  
 
@@ -54,7 +52,6 @@ Un des points clignotait avec insistance, au centre de la structure.
 
 ---
 
-## _**Section 3 : La Première Épreuve**_
 
 ⚠️ **Une violente secousse** ébranla le Siren, plongeant la salle de contrôle dans une semi-obscurité. ⚠️  
 
@@ -66,7 +63,6 @@ La structure massive s’ouvrit, révélant une lumière intense et pulsante. Le
 
 ---
 
-## _**Section 4 : L’Alliance Fragile**_
 
 ⚔️ **Une ombre colossale surgit du Néant, menaçant le Siren et l’équipage.** ⚔️  
 
@@ -78,7 +74,6 @@ Kael prit une décision rapide :
 
 ---
 
-## _**Section 5 : Une Mission Inévitable**_
 
 Lorsque le **Siren** émergea, le fragment brillait doucement dans la salle de contrôle. 🌟
 
