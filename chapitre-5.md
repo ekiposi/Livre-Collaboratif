@@ -1,4 +1,4 @@
-# 🌌 Chapitre 5 : L'Ultime Vérité 🌌
+# 🌌 Chapitre 5 : Les fragments d'Horizon 🌌
 
 ## ⚡ L'Entrée dans le Cœur du Cycle ⚡
 
