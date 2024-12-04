@@ -1,6 +1,7 @@
 # **Les Fragments d’Horizon**
 
-![Couverture du Livre](https://imgur.com/a/8ndPCae.jpeg)
+![couverture](https://github.com/user-attachments/assets/129e4c4f-f834-44e0-b91b-de076d5edee1)
+
 
 ## **Description du Projet**
 
