@@ -1,37 +1,37 @@
-🌌 Le Sacrifice Brisé de l'Univers 🌌
+**🌌 Le Sacrifice Brisé de l'Univers 🌌**
 Eli, gravement blessé et presque à bout de forces, se tenait dans l’ombre, le cœur battant à toute vitesse. Kain, l'air serein, tenait toujours l’artefact du Néant. Le destin de l'univers entier reposait sur lui. Ayla, les yeux pleins d’angoisse, observait chaque mouvement. Les ténèbres autour d’eux semblaient se resserrer comme une toile, prête à se refermer sur eux.
 
-⚡ "C’est notre seule chance," murmura Eli à Ayla, le regard déterminé. "Je dois détruire ce pouvoir, peu importe le coût."
+>⚡ "C’est notre seule chance," murmura Eli à Ayla, le regard déterminé. "Je dois détruire ce pouvoir, peu importe le coût."
 
 Ayla s'approcha de lui, les mains tremblantes.
 
-😔 "Eli, non ! Il doit y avoir un autre moyen ! Tu n’as pas à le faire !"
+>😔 "Eli, non ! Il doit y avoir un autre moyen ! Tu n’as pas à le faire !"
 
 Mais dans le regard d’Eli, il n’y avait aucune hésitation. Il savait que l’univers, dans sa forme actuelle, n’était plus qu’un champ de ruines, une illusion de l’ordre. Il devait faire le sacrifice ultime.
 
-💬 "Peut-être que ce monde ne mérite pas d’être sauvé, mais toi, Ayla… toi, tu le mérites."
+>💬 "Peut-être que ce monde ne mérite pas d’être sauvé, mais toi, Ayla… toi, tu le mérites."
 
 Et avec un dernier souffle, il activa l’artefact. Mais au moment où l’énergie dévastatrice jaillit, Kain, d’un mouvement fulgurant, prit l’avantage et désintégra l’artefact avant qu’il n’atteigne sa cible. Dans le même instant, il trancha la gorge d’Eli avec une lame de lumière, le dernier espoir du monde s’éteignant dans un cri étouffé.
 
-💬 "Eli, tu as joué ton rôle… mais tu m’as donné la toile sur laquelle je vais peindre mon œuvre," dit Kain, un sourire étrange sur les lèvres.
+>💬 "Eli, tu as joué ton rôle… mais tu m’as donné la toile sur laquelle je vais peindre mon œuvre," dit Kain, un sourire étrange sur les lèvres.
 
-🔥 L’Ascension de Kain et le Dernier Acte 🔥
+**🔥 L’Ascension de Kain et le Dernier Acte 🔥**
 Le Cœur du Néant brilla d’un éclat aveuglant, mais au lieu de rétablir l’univers, il déclencha une vague de destruction qui engloutit tout ce qui avait jamais existé. Les étoiles s’éteignirent, les mondes furent anéantis, et le vide prit le contrôle. Ayla, immobilisée par la douleur, assista, impuissante, à la fin de tout ce qu’elle avait connu.
 
 Kain, dans une explosion de lumière, absorbait le Cœur. L’univers s’effondrait autour de lui, mais il était invincible.
 
-💬 "J’ai gagné," murmura-t-il, un rictus triomphant sur les lèvres. "Tout est à moi. Le temps, l’espace, la vie. Tout."
+>💬 "J’ai gagné," murmura-t-il, un rictus triomphant sur les lèvres. "Tout est à moi. Le temps, l’espace, la vie. Tout."
 
-💀 L'Incroyable Révélation 💀
+**💀 L'Incroyable Révélation 💀**
 Au centre du néant, Kain se retrouva seul. Il avait triomphé, mais il n'y avait rien à conquérir. Aucune étoile, aucun souffle de vie, rien qu'un silence absolu. Il se tourna, se demandant si ce vide était son nouveau royaume.
 
 Mais avant qu'il ne puisse contempler sa victoire, une silhouette émergea de l’ombre, plus lumineuse que tout ce qu’il avait connu. Ayla.
 
-✨ "Alors, tu penses vraiment que tu as gagné ?" dit-elle, d’une voix calme mais pleine de pouvoir.
+>✨ "Alors, tu penses vraiment que tu as gagné ?" dit-elle, d’une voix calme mais pleine de pouvoir.
 
 Kain se figea. Ce n'était pas possible. Il l’avait vue mourir. Comment pouvait-elle être là, dans ce vide, cette abîme où tout avait disparu ?
 
-💬 "Ce n'est pas comme tout ce que nous avons vu auparavant."
+>💬 "Ce n'est pas comme tout ce que nous avons vu auparavant."
 
 Kain avança, foudroyant Ayla du regard. "Qu’est-ce que tu veux dire ? Tu n’es qu’une illusion !"
 
