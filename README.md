@@ -13,7 +13,7 @@ Bienvenue dans notre projet collaboratif **Les Fragments d’Horizon**. Ce livre
 2. [Chapitre 2 : Les Portes du Vide](chapitre-2.md)  
 3. [Chapitre 3 : L'Alliance Inattendue](chapitre-3.md)  
 4. [Chapitre 4 : L'Ultime Paradoxe](chapitre-4.md)
-5. [Chapitre 5 : Les Fragments d'Horizon](Chapitre-5.md)
+5. [Chapitre 5 : Les Fragments d'Horizon](chapitre-5.md)
    
 ## **Contributeurs**
 
