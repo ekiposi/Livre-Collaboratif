@@ -1,6 +1,6 @@
 # **Les Fragments d’Horizon**
 
-![Couverture du Livre](https://imgur.com/a/8ndPCae)
+![Couverture du Livre](https://imgur.com/a/8ndPCae.jpeg)
 
 ## **Description du Projet**
 
