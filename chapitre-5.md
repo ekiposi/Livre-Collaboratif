@@ -1,6 +1,5 @@
-Voici comment appliquer ton prompt pour rendre l’histoire plus engageante avec une mise en forme captivante en Markdown :
 
----
+
 
 ## 🌌 **Le Sacrifice Brisé de l'Univers** 🌌
 
